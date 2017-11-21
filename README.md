@@ -1,3 +1,0 @@
-Sai
-Baba
-Please
